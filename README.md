@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 🤔 40 岁，大龄
+- 🤔 不惑之年
 - 🌱 躺平
 - ⚡ 不和陌生人说话
 - 🎵 老歌
