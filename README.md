@@ -17,3 +17,4 @@ Here are some ideas to get you started:
 
 - 🤔 40 岁，大龄
 - 🌱 躺平
+- ⚡ 不和陌生人说话
